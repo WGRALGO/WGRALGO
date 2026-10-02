@@ -28,7 +28,7 @@ https://thewealthgapresolutionalgorithm.org/games/
 
 I can be reached at:
 
-wealthgapresolutionalgorithm@gmail.com
+info@thewealthgapresolutionalgorithm.org
 
 You can also contact me through any of my social media profiles.
 
